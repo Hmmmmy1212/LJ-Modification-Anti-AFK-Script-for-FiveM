@@ -1,0 +1,1 @@
+# LJ-Modification-Anti-AFK-Script-for-FiveM
